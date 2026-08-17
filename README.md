@@ -1,1 +1,0 @@
-# SamuelLHirsch.github.io
